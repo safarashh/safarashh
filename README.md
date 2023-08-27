@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-<Perkenalkan nama saya **Naufal safarash**.
+Perkenalkan nama saya **Naufal safarash**.
 
 Saya seorang **Mahasiswa** di Universitas Gunadarma.
 
